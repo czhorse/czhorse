@@ -1,1 +1,1 @@
-yes yes! all my repositories are private
+はいはい！私のすべてのリポジトリは非公開です。
