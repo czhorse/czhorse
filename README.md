@@ -1,1 +1,1 @@
-ceo
+chief executive officer
